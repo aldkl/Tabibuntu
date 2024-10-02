@@ -1,2 +1,0 @@
-# Tabibuntu
-Tabibuntu Is Goods
